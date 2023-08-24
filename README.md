@@ -1,4 +1,6 @@
-![](https://sun9-19.userapi.com/impg/OO_R--dW0FHAUH7ibsaE-ZOc-PcodnXMWrwo4A/YRmFOgpad54.jpg?size=828x828&quality=95&sign=4ff90acbc5f3b63c9a9a9668ec1af0aa&type=album)
+![](https://github.com/isalunbel/portfolio/assets/142603867/29039908-500b-470f-be75-eaf334a627a2)
+
+
 
 **Обо мне:**
 
