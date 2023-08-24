@@ -1,10 +1,12 @@
-![](https://sun9-17.userapi.com/impg/3c0YN8DS6cO2wiQu_T8NM_e3rGDhJr77wCK2Pw/aLZUxwkKyvE.jpg?size=828x1472&quality=95&sign=58647ad455d3550093562969c3804f12&type=album)
+![](https://sun9-19.userapi.com/impg/OO_R--dW0FHAUH7ibsaE-ZOc-PcodnXMWrwo4A/YRmFOgpad54.jpg?size=828x828&quality=95&sign=4ff90acbc5f3b63c9a9a9668ec1af0aa&type=album)
 
-* Обо мне *
+**Обо мне:**
+
   - Меня зовут Елизавета.
   - Мне 19 лет.
   - Я учусь на лингвиста, а также занимаюсь программированием и дизайном пользовательских интерфейсов.
 
-** Контакты **
-[Email](lilu6890@gmail.com)
-[Behance](https://www.behance.net/uielizaveta)
+*Контакты:*
+
+1. [Email](lilu6890@gmail.com)
+2. [Behance](https://www.behance.net/uielizaveta)
